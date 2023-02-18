@@ -14,7 +14,7 @@
 - 📫 How to reach me **martin.githinji.maina@gmail.com**
 
 <h1 align="center">UIPATH AND MICROSOFT POWER AUTOMATE</h1>
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: http://linkedin.com/in/martin-maina-githinji-03b7481b0</h3>
 <p align="left">
 </p>
 
